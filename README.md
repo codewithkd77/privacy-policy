@@ -1,4 +1,4 @@
-# privacy-policy direct chat
+# privacy-policy direct chat (play store publication)
 
 
 At Direct Chat App, your privacy is important to us. This Privacy Policy outlines how we collect, use, and protect your information when you use our mobile application.
